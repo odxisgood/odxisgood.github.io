@@ -1,5 +1,6 @@
               Welcome to Odx 
-
-
-
-this my frist personal blog
+hallo this is oudaxia.
+you can call me Zongyuan Ou .
+this my frist personal blog.
+very good.
+再见。。。
